@@ -1,2 +1,3 @@
 # blackjack_semester1_final
-awful code for blackjack
+awful code for blackjack 
+i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i wanna go home i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this i hate this 
